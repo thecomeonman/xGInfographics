@@ -38,4 +38,4 @@ Some other interesting observations beyond what is mentioned in the summary in t
 
 ## Get in Touch
 
-If you found it too intimidating and the above description didn't help enough, or for compliments, or requests, please reply ![on this Twitter thread](https://twitter.com/thecomeonman/status/1381994632926535684).
+If you found it too intimidating and the above description didn't help enough, or for compliments, or requests, please reply [on this Twitter thread](https://twitter.com/thecomeonman/status/1381994632926535684).
